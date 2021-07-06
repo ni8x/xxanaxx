@@ -21,3 +21,5 @@ https:/waa.ai/xxanaxx-bot
 https:/waa.ai/xxanaxx-bot
 
 PING ME OR JOIN SUPPORT SERVER FOR HELP !
+
+EVERYTHING BADLY WRITTEN SOON FIX IT ALL ! :)
